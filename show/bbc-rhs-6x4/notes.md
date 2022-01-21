@@ -1,1 +1,0 @@
-<http://downloads.bbc.co.uk/england/pdf/local-bbc-radio-and-rhs-garden-design-competition-terms-and-conditions-2022.pdf
